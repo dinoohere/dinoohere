@@ -1,4 +1,4 @@
--  Yoo, I’m @t1dinooishere or sometimes my mom told me David.
+-  Yoo, I’m @skt_dinoo or sometimes my mom told me David.
 -  I’m interested in improve as a programmer and imporve my enterpreneurship project-
 -  I’m currently learning java, c and c++, arduino ide, and thats all lmao.
 -  I’m looking to collaborate on whatever that have hydroponic, aquaponic or greenhouses things, actualliy i have courses from Instituto Tecnologico de Roque. 
